@@ -11,4 +11,5 @@
 
 
 Лекция и семинар 1: https://disk.yandex.ru/i/iU01k_4LPNF71Q
+
 Лекция и семинар 2: https://disk.yandex.ru/d/POge_3U8S7sdcw
