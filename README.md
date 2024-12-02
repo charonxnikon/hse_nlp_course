@@ -15,3 +15,5 @@
 Лекция и семинар 2: https://disk.yandex.ru/d/POge_3U8S7sdcw
 
 Лекция и семинар 3: https://vk.com/im/convo/2000000623?entrypoint=list_all&z=video148888053_456240933%2F6325597d279515e32f
+
+Лекция и семинар 4: https://vk.com/im/convo/2000000634?entrypoint=conversations_search&z=video148888053_456240934%2F45d8641f847f5f270e
